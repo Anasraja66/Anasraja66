@@ -58,7 +58,7 @@ I build **intelligent, scalable web applications** and **autonomous AI pipelines
 ## 📫 Connect With Me
 
 - **LinkedIn:** [linkedin.com/in/anas‑raja66](http://www.linkedin.com/in/anas-raja66)
-- **Email:** hello@anas‑developer.com (or your preferred contact)
+- **Email:** anasraja868@gmial.com
 
 ---
 
